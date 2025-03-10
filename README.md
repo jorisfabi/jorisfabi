@@ -3,6 +3,8 @@
 
 - 🔭 I’m currently studying **at CVSU Naic as a BSIT student**
 
+- 😞 Ayoko sa mga **cheter 😞**
+
 - ⚡ Fun fact **Top 1 MC GOGO**
 
 <h3 align="left">Connect with me:</h3>
