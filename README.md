@@ -1,6 +1,8 @@
+[![Mastermind](https://1.bp.blogspot.com/7A4WynwLsMw/XbBpCXG8fHI/AAAAAAAAMt4/uOa1bpLskYgrwGbllhSu2SDj_Mig.gif)]
 <h1 align="center">Hi 👋, I'm jorisfabi</h1>
 <div align="center"> <img src="https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExYWlicWduZ3VybzkwNzh2ZGJxZWV2M3FkY3JycnJndXVkb3htY3VwMiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/Wc9tbE3MWpxwoeAkiY/giphy.gif"> </div>
 <h3 align="center">A passionate lover not a cheter from Canada</h3>
+<img align="right" alt="Coding" width="400" src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExMjVjdTVvaXdyamVzaDZ5NHgzMnR1aHRiZmgydmVmd2E2MTBlZjZvbSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/pVWuLuV1JESZJdebkI/giphy.gif" >
 
 - 🔭 I’m currently studying **at CVSU Naic as a BSIT student**
 
