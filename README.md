@@ -1,4 +1,5 @@
 <h1 align="center">Hi 👋, I'm jorisfabi</h1>
+<div allign="center"> <img src="cecilion-6202d136f3e90.png"> </div>
 <h3 align="center">A passionate lover not a cheter from Canada</h3>
 
 - 🔭 I’m currently studying **at CVSU Naic as a BSIT student**
