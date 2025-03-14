@@ -1,4 +1,4 @@
-[![Mastermind](https://1.bp.blogspot.com/7A4WynwLsMw/XbBpCXG8fHI/AAAAAAAAMt4/uOa1bpLskYgrwGbllhSu2SDj_Mig.gif)]
+[![Mastermind](https://1.bp.blogspot.com/7A4WynwLsMw/XbBpCXG8fHI/AAAAAAAAMt4/uOa1bpLskYgrwGbllhSu2SDj_Mig8SXJQCLcBGAsYHQ/s1600/2000_600px.gif)](https://rishavchanda.io)
 <h1 align="center">Hi 👋, I'm jorisfabi</h1>
 <div align="center"> <img src="https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExYWlicWduZ3VybzkwNzh2ZGJxZWV2M3FkY3JycnJndXVkb3htY3VwMiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/Wc9tbE3MWpxwoeAkiY/giphy.gif"> </div>
 <h3 align="center">A passionate lover not a cheter from Canada</h3>
